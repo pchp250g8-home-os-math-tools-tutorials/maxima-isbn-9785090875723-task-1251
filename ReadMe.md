@@ -1,0 +1,1 @@
+Task-1251. Maxima tutorials. Word problems
